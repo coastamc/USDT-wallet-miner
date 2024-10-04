@@ -16,4 +16,5 @@ Any problem?:Contact to coasta252@gmail.com
 
 
 
-DONATE TO :bc1ptuwa6flsc7ylvdpj2lq93eag5znm6yhand82av6r95jptdlm6kwq4vrnu6
+DONATETO:
+bc1ptuwa6flsc7ylvdpj2lq93eag5znm6yhand82av6r95jptdlm6kwq4vrnu6
